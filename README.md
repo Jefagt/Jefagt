@@ -1,4 +1,4 @@
-# 👋 Hola, soy Jefagt
+# 👋 Hola, soy Jefagt(Jostin Flores)
 
 ✨ Creativo digital | Diseñador de experiencias interactivas | Explorador de ideas ✨
 
